@@ -1,3 +1,3 @@
 # Resources-for-Interested-Nurses
 
-## [Link to Wiki](https://github.com/forbest17/Resources-for-Interested-Nurses/wiki)) 
+## [Link to Wiki](https://github.com/forbest17/Resources-for-Interested-Nurses/wiki)
